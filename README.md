@@ -1,1 +1,3 @@
-# .github
+# *Endure: Mastering Persistence and Grit – Unleash Your Inner Warrior*
+## *Discover 15 hidden, powerful truths on mastering persistence, grit, and unwavering belief in yourself can transform your life. Awaken your inner warrior and endure challenges with spiritual strength. In a world that glorifies instant success, endurance is your secret weapon. It’s not about never falling—it’s about rising every single time you do.* [More details…](https://spiritualkhazaana.com/web-stories/endure-mastering-persistence-and-grit/)
+## #endure #endurance #Motivation #persistence #grit #innerwarrior #SpiritualGrowth	
